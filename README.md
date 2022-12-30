@@ -1,1 +1,1 @@
-# rookies-tema08-meating
+# rookies-tema08-meeting
